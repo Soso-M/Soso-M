@@ -5,7 +5,12 @@
 🌱 I’m currently learning to code at Ada Tech School.
 
 📫 How to reach me: 
+
+   By linkedin --> https://www.linkedin.com/in/sonia-mechaour-801477222/ 
+  
+   By email --> sonia.mechaour@hotmail.fr
+
+
     
-    by linkedin > https://www.linkedin.com/in/sonia-mechaour-801477222/
     
-    by email > sonia.mechaour@hotmail.fr
+    
